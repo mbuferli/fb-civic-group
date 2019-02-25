@@ -19,3 +19,11 @@ Ecco quindi **le 10 cose che NON vogliamo vedere** nel nostro gruppo:
 - **Emergenze**: le emergenze di qualsiasi ordine devono prima essere comunicate agli organi competenti (pronto soccorso, polizia, pompieri, forze dell’ordine, …), favorendone l’intervento. Successivamente è possibile informare i membri del gruppo. 
 
 Cercheremo di rispondere ad ogni domanda del gruppo (insieme a tutti i membri) e di ascoltare le esigenze di tutti, ma lo scopo di questo gruppo non è rappresentare alcuno schieramento politico, né sostituirsi a nessun organo pubblico. **NON siamo il Comune**, **NON rappresentiamo il Comune** né rappresentiamo nessun altro se non noi stessi.
+
+Copyright: chiunque può utilizzare parte o tutto questo file per creare o adeguare la netiquette del proprio gruppo (sia esso un gruppo Facebook o un qualunque gruppo). Ci farebbe piacere se in cambio ci citaste come fonte!
+
+Autori:
+- Danila Bigazzi
+- Davide Buferli
+- Matteo Buferli
+- Giorgia Tondini
